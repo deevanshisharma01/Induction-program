@@ -10,7 +10,7 @@ DAY 1 (C.S.E) date 31 july<br> <br>
 Starting a new journey with God ‘s blessing is really a pleasure. And today GNDEC gave me this pleasure. The kirtan gives me a different level of mental peace and overcomes the nostalgia of school days. <br><br>
 * A GREAT WELCOME <br> <br>
 A great welcome from the anchors Taranpreet and harsimaran and the alumni motivation as well as great advice helped me a lot to control my anxiety.<br> <br>
-* HOD OF APPIED SCIENCE <br> <br>
+* HOD OF APPLIED SCIENCE <br> <br>
 Mam ‘s golden words and Mantra for growth is really mesmerising. Not only in the study but also in the whole life. <br> <br>
 * CHIEF GUEST RAVINDER GARG <br> <br>
 Thanks for giving us Mantra of hardworking and smartwork and maintain a balance between them . And always respect parents and teacher. <br> <br>
@@ -31,11 +31,12 @@ Before the lecture of causmic club. SHARAN sung a beautiful song which is really
 
 DAY- 3 (2 AUGUST 2025) <br> <br> <br>
 * WISDOM FULL LECTURE BY DR. JASWINDER SINGH <br> <br>
-Who said that science and maths are boring subject when you have a teacher like jaswinder sir.Who taught in such a interesting and pratical way. dr. jaswinder sir is 2 time national awardee and he has trica of world record .A wisdom full man who relates science with the spritiuality in very easy way.
+Who said that science and maths are boring subject when you have a teacher like jaswinder sir.Who taught in such a interesting and pratical way. dr. jaswinder sir is 2 time national awardee and he has trica of world record .A wisdom full man who relates science with the spritiuality in very easy way.which join young generation with the spritiuality and our culture. sir pratical experiments shows that pratical knowledge always heavy on theory knowledge. And the defination of meditation beautifully impacts on the minds of the audience.Really i don't have words to explain the aura, wisdom and farsightness of sir.<br><br>
+* LECTURE BY PRIYA DARSHNI MAM ON HUMAN VALUES <br><br>
+Universal Human Values: A Path to Happiness
+Our first lecture of the day was on Universal Human Values, a subject that delves into the essence of what it means to live a fulfilling and content life. We explored the concept of happiness and the state of contentment, discussing how these states of mind influence our everyday actions and decisions. The session was enlightening, providing a fresh perspective on how we can achieve true happiness. We also shared real-life scenarios, which made the discussion more relatable and impactful.With this the DAY 3 ENDS.<br> <br> 
 
-
-
-
+DAY- 4(4 AUGUST 2025)
 
 
 
